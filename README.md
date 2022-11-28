@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @influesiii
+- 👀 I’m interested in creating games or applications for android, as well as high-quality coding
+- 🌱 I’m currently learning studying at the OVERONE school to become a Python developer
+- 💞️ I am looking for cooperation in a team that can share precious experience ...
+- 📫 How to reach me Write to me on Telegram, I'll be happy to listen to you) https://t.me/tibyonxxela
